@@ -6,12 +6,18 @@ Cuisina: American
 
 Method: Oven
 
+
 Prep Time: 45 mins
+
 Cook Time: 20 mins
-Total Time: 1 Hour, 5 mins plus Cooling time 
+
+Total Time: 1 Hour, 5 mins plus Cooling time
+
 
 Servings: 14-16 Cupcakes
+
 Calories: 520 (per Serving)
+
 
 Author: Farhan Ahmed
 
