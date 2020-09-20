@@ -1,44 +1,60 @@
 These Moist Chocolate Cupcakes are made completely from scratch! The cupcake is made with oil and is so moist, it melts in your mouth with a fudgy frosting! This the best Chocolate Cupcake recipe ever!
 
-Course: Dessert
+Course: Dessert.
 
-Cuisina: American
+Cuisina: American.
 
-Method: Oven
+Method: Oven.
 
-Prep Time: 45 mins
+Prep Time: 45 mins.
 
-Cook Time: 20 mins
+Cook Time: 20 mins.
 
-Total Time: 1 Hour, 5 mins plus Cooling time
+Total Time: 1 Hour, 5 mins plus Cooling time.
 
-Servings: 14-16 Cupcakes
+Servings: 14-16 Cupcakes.
 
 Calories: 520 (per Serving)
 
-Author: Farhan Ahmed
+Author: Farhan Ahmed.
 
 INGREDIENTS
 
 CHOCOLATE CUPCAKES
-1 cup (130g) all purpose flour
-1 cup (207g) sugar
+
+1 cup (130g) all purpose flour.
+
+1 cup (207g) sugar.
+
 6 tbsp (43g) Hershey’s Special Dark Cocoa powder*
-1 tsp baking soda
-1/2 tsp salt
-1 large egg
-1/2 cup (120ml) buttermilk
-1/2 cup (120ml) vegetable oil
-3/4 tsp vanilla
-1/2 cup (120ml) hot water
+
+1 tsp baking soda.
+
+1/2 tsp salt.
+
+1 large egg.
+
+1/2 cup (120ml) buttermilk.
+
+1/2 cup (120ml) vegetable oil.
+
+3/4 tsp vanilla.
+
+1/2 cup (120ml) hot water.
 
 CHOCOLATE FROSTING
-1 1/4 cups (280g) unsalted butter, room temperature
-12 oz semi sweet chocolate chips, melted
-3 tbsp (22g) Hershey’s dark cocoa powder
-5 cups (575g) powdered sugar
-Pinch of salt
-4–5 tbsp (60-75ml) heavy whipping cream
+
+1 1/4 cups (280g) unsalted butter, room temperature.
+
+12 oz semi sweet chocolate chips, melted.
+
+3 tbsp (22g) Hershey’s dark cocoa powder.
+
+5 cups (575g) powdered sugar.
+
+Pinch of salt.
+
+4–5 tbsp (60-75ml) heavy whipping cream.
 
 EQUIPMENTS
 Measuring cups 
