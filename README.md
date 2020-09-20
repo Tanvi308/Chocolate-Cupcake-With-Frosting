@@ -57,19 +57,28 @@ Pinch of salt.
 4–5 tbsp (60-75ml) heavy whipping cream.
 
 EQUIPMENTS
-Measuring cups 
-Measuring spoons
-Spatula
-Frosting piping bag with nozzles
-Cupcake pan
-Cupcake liners
+
+Measuring cups.
+
+Measuring spoons.
+
+Spatula.
+
+Frosting piping bag with nozzles.
+
+Cupcake pan.
+
+Cupcake liners.
 
 
 RECIPIE
 
 Preheat oven to 300°F (148°C) and prepare a cupcake pan with liners.
+
 Add the dry ingredients to a large bowl and whisk together. Set aside.
+
 Combine the egg, Butter milk, Vegetable oil & vanilla in another medium sized bowl.
+
 Add the wet ingredients to the dry ingredients & mix until well combined.
 Add the water to the batter & mix until well combined.Batter will be thin.
 Fill the cupcake liners about half way and bake for 18-23 mins, or until a tooth pick comes out with a few moist crumbs.
